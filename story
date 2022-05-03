@@ -1,0 +1,1 @@
+One summer evening, Lucy was helping her Mother in gardening. Her Mother loves to grow flowers.
